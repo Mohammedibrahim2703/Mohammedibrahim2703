@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mohammedibrahim2703
 - 👀 I’m interested in AI/ML,Big Data
-- 💞️ I’m looking to collaborate on StartUps
+- 💞️ I’m looking to collaborate on StartUps Ideas , Hackatons , Creating Innovative Products 
 - 📫 How to reach me mohammedibrahim2703@gmail.com
 
 <!---
